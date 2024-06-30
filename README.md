@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on coding projects including Hackathons to advance my technical abilities required for Software engineering.
 - 📫 How to reach me? Reach me via email at williams.monnet@gmail.com for professional inquires and coding collbarations. Always happy to meet new, motivated people.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love Brazilian Jujitzu (BJJ), Solo-traveler, and Skating
+- ⚡ Fun facts: 3-Stripe white belt Brazilian Jujitsu (BJJ) practitioner, Solo-traveler, and Wakeboarding
 
 <!---
 moeinmotion/moeinmotion is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
